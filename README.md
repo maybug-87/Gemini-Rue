@@ -217,4 +217,4 @@ Gemini Rue is available as a **full free version** with all features and updates
 Don't miss out on the chance to experience Gemini Rue, the ultimate graphic adventure! **Download now and start your journey today!**
 
 ---
-**Last updated:** 2026-10-11 23:16:19 UTC
+**Last updated:** 2026-10-12 02:53:57 UTC
